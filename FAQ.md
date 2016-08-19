@@ -44,7 +44,9 @@ Jazeker! Je bent altijd welkom om mee te komen doen.
 
 ### Jolien
 
-Jolien houdt van planten.
+Jolien houdt van kleine kriebelbeestjes dingen die je niet meteen ziet, maar moet ontdekken.        
+Bijvoorbeeld hoe botten eruit zien, of insecten die verscholen zitten in boomstammetjes, 
+of dingen die zo klein zijn dat je ze niet met je blote ogen ziet.
 
 ### Kevin
 
